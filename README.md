@@ -1,6 +1,6 @@
 # Hi, I'm  vintcent 👋🏾 👩🏾‍💻
 
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fanggota.igi.or.id%2Fanggota-igi-martupa-sitinjak-14.html&psig=AOvVaw0JpP8v5rbggx-e4i-rpC51&ust=1694241966282000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCMCY9qa1moEDFQAAAAAdAAAAABAI" alt="">
+<img src="https://anggota.igi.or.id/image/profil/besar/9171593577056-103945.jpg" alt="">
 Halo, Saya vintcent ! Pelajar dari Jakarta Timur, seorang pelajar yang sangat kecanduan dengan komputer dan internet namun masih awam dengan hal itu.
 Saya suka menjelajahi tentang programming, hacking, dan linux namun saya sering lupa maka karna itu saya menulis, saya suka menulis untuk men-dokumentasikan beberapa hal yang baru saya pelajari
 bahkan yang saya ketahui, semua itu semata-mata agar saya tidak lupa.
