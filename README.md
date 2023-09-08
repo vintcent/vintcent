@@ -8,7 +8,7 @@ bahkan yang saya ketahui, semua itu semata-mata agar saya tidak lupa.
 ## Find me around the web 🌎:
 - Pelajar di <a href="https://smkprestasiprima.sch.id/">SMK PRESTASI PRIMA</a>✍🏾
 - Website <a href="https://rtd.codegeek.my.id"> Codegeek</a> 🏓
-- Social Media <a href="https://instagram.com/pincenn11%3EInstagram%3C/a%3E">Instagram</a> 💼
+- Social Media <a href="https://www.instagram.com/pincenn118/">Instagram</a> 💼
 
 ## 💼 Technical Skills
 
